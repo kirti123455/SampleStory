@@ -1,1 +1,1 @@
-Crocodile and monkey were best friends.
+Crocodile and monkey were best friends. Monkey was eating berries and crocodile coudn't eat it so monkey helped crocodile in giving berries to crocodile.
